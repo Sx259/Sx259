@@ -28,8 +28,3 @@ ${{\color{#ff90be}﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏�
 ${{\color{#f8e7ee}Credits ㅤ toㅤElijahㅤforㅤdaㅤlayoutㅤ editingㅤ andㅤdecoration ! 1! 1!}}$ ໒꒰ྀི๑ᵔ ▾ ᵔ๑꒱ྀིა
 
 <img width="2000" height="450" alt="Untitled556_20260501130826" src="https://github.com/user-attachments/assets/bb8b018e-d24b-4688-aadc-4d80533eab69" />
-
-_
-# ${{\color{#e699b9}ALSO}}$ ${{\color{#c6d1ff}ART}}$ ${{\color{#f8e7ee}MADE}}$ ${{\color{#e699b9}BY}}$ ${{\color{#ff90be}ME}}$ . ໒꒰ྀི ˶• ╸ •˶ ྀི১
-
- ![image alt](https://github.com/Mequott/Mequott/blob/ce4d98e9eeca72e04045134867c0457af363386a/Untitled183_20260504143209.png)
