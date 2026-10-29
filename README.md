@@ -17,20 +17,11 @@ ${{\color{#f8e7ee}˖ ݁𖥔 ݁˖ 𐙚 ˖ ݁𖥔 ݁˖}}$ ${{\color{#b4e9ff}ＩＮ
 
 ${{\color{#ff90be}﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏}}$
 
-# ${{\color{#c6d1ff}ART}}$ ${{\color{#f8e7ee}MADE}}$ ${{\color{#e699b9}BY}}$ ${{\color{#ff90be}ME}}$ . ໒꒰ྀི ˶• ╸ •˶ ྀི১
-
-<img width="768" height="750" alt="Untitled555_20260501130326" src="https://github.com/user-attachments/assets/87a18060-e154-4e69-8450-2d8c7cbab403" />
+# ${{\color{#c6d1ff}Sx}}$ ${{\color{#f8e7ee}2}}$ ${{\color{#e699b9}5}}$ ${{\color{#ff90be}9}}$ . ໒꒰ྀི ˶• ╸ •˶ ྀི১
 
 _
 
 ${{\color{#ff90be}﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏}}$
-
-# ${{\color{#fda9c0}ＤＮＩ}}$ ${{\color{#b4e9ff}ＬＩＳＴ}}$ . ${{\color{#c6d1ff}໒꒰ྀི -᷅ ⤙ -᷄ ꒱ྀི১}}$
-
-- ${{\color{#c6d1ff}𝗣𝗥𝗢𝗦𝗛𝗜𝗣𝗣𝗘𝗥𝗦}}$
-- ${{\color{#f8e7ee}𝗗𝗔𝗥𝗞𝗦𝗛𝗜𝗣𝗣𝗘𝗥𝗦}}$
-- ${{\color{#fdbed6}𝗥𝗔𝗖𝗜𝗦𝗧𝗦}}$
-- ${{\color{#fda9c0}𝙋𝙚𝙤𝙥𝙡𝙚}}$ ${{\color{#b4e9ff}𝙬𝙞𝙩𝙝ㅤ𝙣𝙤}}$ ${{\color{#c6d1ff}𝗕𝗢𝗨𝗡𝗗𝗔𝗥𝗬}}$ ${{\color{#f8e7ee}𝗥𝗘𝗦𝗣𝗘𝗖𝗧𝗜𝗡𝗚}}$
 
 ${{\color{#ff90be}﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏}}$
 
